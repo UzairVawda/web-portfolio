@@ -1,5 +1,5 @@
 WEB
 PORTFLIO
-found at 
+can be found at 
 uzairvawda.me
  
